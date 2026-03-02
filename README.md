@@ -1,0 +1,1 @@
+# solution-analyst-tech-assesment
